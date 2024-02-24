@@ -1,2 +1,2 @@
 # SCCI
- gasshi suck or gasshi47 suck
+ ga**47 日本鬼子死
